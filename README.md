@@ -1,10 +1,9 @@
-kodumun mateası altyapına sahip çık JHDFSAJKLFHDSAJKFHDSALFFKDSJKLFH ;)
-
-
-[MERCY GİTHUB](https://github.com/mercyxrd)
+KODUMUN ACARI BOTUNA SAHİP ÇIK 
 
 
 
-reklamda yapak aq 
 
-htpps://discord.gg/0207 gelmeyen ermeni
+
+
+XD MÜNÜR
+
